@@ -1,0 +1,1 @@
+# OKINAWA-trip-app2.0
